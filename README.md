@@ -5,8 +5,8 @@
 
 
 
-**📫 Contact :
-이메일 : juk6340@gmail.com
+📫 Contact <br>
+이메일 : juk6340@gmail.com <br>
 포트폴리오 : https://snapdragon-maple-d1e.notion.site/fd575d46e35c4caaaccc386f40079bf2?pvs=4
 
 <br />
